@@ -15,3 +15,5 @@ reagiert er – trotz seines gelegentlich durchschimmernden menschlichen Erbes �
 Das ist sein Motto
 
 > Wir sind frei von Emotionen. Wo es keine Emotionen gibt, gibt es kein Motiv für Gewalt.
+
+<img src="https://www.handelsblatt.com/images/leonard-nimoy/11437904/3-format2020.jpg"/>
