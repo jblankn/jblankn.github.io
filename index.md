@@ -11,3 +11,7 @@ reagiert er – trotz seines gelegentlich durchschimmernden menschlichen Erbes �
 * keine Emotionen
 * Wissenschaftsoffizier
 * streng logisch denkend
+
+Das ist sein Motto
+
+> Wir sind frei von Emotionen. Wo es keine Emotionen gibt, gibt es kein Motiv für Gewalt.
